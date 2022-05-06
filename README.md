@@ -1,1 +1,1 @@
-# Wortanalyse-Femizidberichterstattung-
+# Wortanalyse-Femizidberichterstattung
